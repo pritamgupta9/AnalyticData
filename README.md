@@ -1,2 +1,2 @@
-![Screenshot (1)](https://github.com/pritamgupta9/AnalyticData/assets/70558470/97cef9af-12b0-48eb-bc34-33b54599004b)
-![Screenshot (2)](https://github.com/pritamgupta9/AnalyticData/assets/70558470/1c7908b5-d491-4e42-ae54-c9f0c0479c46)
+![Screenshot (12)](https://github.com/pritamgupta9/AnalyticData/assets/70558470/e0c84e34-66a9-4427-aa86-8099e5cad4be)
+![Screenshot (13)](https://github.com/pritamgupta9/AnalyticData/assets/70558470/1e1cbe40-6cb5-4224-9057-219afa7de266)
